@@ -9,7 +9,7 @@
 
 - 📄 sheet of paper [bit.ly/bukaajadulugais](bit.ly/bukaajadulugais)
 
-- ⚡ Upgrade your brain content in warkop **a cup of coffee and a laptop**
+- ⚡ Warkop users who change the contents of their minds with **a cup of coffee and a laptop**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
