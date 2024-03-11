@@ -6,7 +6,7 @@
 
 - 👨‍💻 get to know more deeply [bit.ly/portofoliosiraff](https://bit.ly/portofoliosiraff)
 
-- 📝 I regularly write articles covering the world of information technology and computers [rafikulmuttakin.eu.org](https://www.rafikulmuttakin.eu.org)
+- 📝 I regularly write articles covering the world of information technology and computers [rafikulmuttakin.eu.org](http://www.rafikulmuttakin.eu.org)
 
 - 📄 sheet of paper [bit.ly/bukaajadulugais](https://bit.ly/bukaajadulugais)
 
