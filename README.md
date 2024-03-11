@@ -8,7 +8,7 @@
 
 - 📝 I regularly write articles covering the world of information technology and computers [rafikulmuttakin.eu.org](rafikulmuttakin.eu.org)
 
-- 📄 sheet of paper [bit.ly/bukaajadulugais](bit.ly/bukaajadulugais)
+- 📄 sheet of paper [bit.ly/bukaajadulugais](https://bit.ly/bukaajadulugais)
 
 - ⚡ Warkop users who change the contents of their minds with **a cup of coffee and a laptop**
 
