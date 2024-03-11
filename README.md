@@ -1,4 +1,4 @@
-![MasterHead](https://i.pinimg.com/originals/8b/fd/01/8bfd01c18be1b5059bc0d7770d9dabf1.gif)
+![MasterHead](https://miro.medium.com/v2/resize:fit:786/format:webp/1*D7Zpqwm2nSQ7uWL5ovh-XQ.gif)
 <h1 align="center">Hi 👋, I'm Rafikul Muttakin</h1>
 <h3 align="center">I come from Indonesia, in the midst of the onslaught of information and computer technology</h3>
 
