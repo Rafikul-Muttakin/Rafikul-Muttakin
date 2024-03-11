@@ -4,9 +4,9 @@
 
 - 🌱 I'm looking into it **Cyber Security, Network Engineer, coding world,and other.**
 
-- 👨‍💻 get to know more deeply [bit.ly/portofoliosiraff](bit.ly/portofoliosiraff)
+- 👨‍💻 get to know more deeply [bit.ly/portofoliosiraff](https://bit.ly/portofoliosiraff)
 
-- 📝 I regularly write articles covering the world of information technology and computers [rafikulmuttakin.eu.org](rafikulmuttakin.eu.org)
+- 📝 I regularly write articles covering the world of information technology and computers [rafikulmuttakin.eu.org](https://rafikulmuttakin.eu.org)
 
 - 📄 sheet of paper [bit.ly/bukaajadulugais](https://bit.ly/bukaajadulugais)
 
